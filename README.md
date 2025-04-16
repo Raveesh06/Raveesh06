@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Raveesh06
+- 🌱 I’m currently learning coding
+- 🦐 i will be posting all my progress on this acc
